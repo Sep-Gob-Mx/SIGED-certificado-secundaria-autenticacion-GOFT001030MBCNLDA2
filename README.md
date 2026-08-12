@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GOFT001030MBCNLDA2
+GOFT001030MBCNLDA2
